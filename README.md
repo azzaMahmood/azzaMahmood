@@ -7,3 +7,5 @@
 - 👯 I’m looking to collaborate with other content creators
 - 🤸🏻‍♂️ I enjoy swimming 🏊‍♀️ and playing Tennis 🎾
 - ⚡ Fun fact: I adore CARs. 🚘
+- 📫 How to reach me: azzaamahmoud3@gmail.com
+
